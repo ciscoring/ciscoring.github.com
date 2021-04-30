@@ -14,7 +14,7 @@ Bachelor's degree, Software engineering
 ##### APPARATUS AND METHOD FOR PROVIDING ONLINE COMMUNITY SERVICE CORRESPONDING GAME USER GROUP
 Issued Dec 1, 2017  Patent issuer and numberkr 1020170181201
 
-### My goals for 2019
+### My goals for 2019 11
 #### Studying English
 I try to achieve a score of IELTS 6.0 or 6.5.
 
